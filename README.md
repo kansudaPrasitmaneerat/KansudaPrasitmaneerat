@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is kansuda\_Prasitmaneerat 
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Kansuda\_Prasitmaneerat 
 * 🏫  Sripatum University student
 * 🌍  I'm based in Bangkok, Thailand
 * ✉️  You can contact me at [kansuda.pra@spumail.net](mailto:kansuda.pra@spumail.net)
